@@ -1,5 +1,5 @@
 ## Prolegomena
 
-i only do long division with pen and paper
+i only do long division on knuckle bones.
 
-arapça ok. kinda
+hürrîyet, müsâvât, uhuvvet, adâlet
